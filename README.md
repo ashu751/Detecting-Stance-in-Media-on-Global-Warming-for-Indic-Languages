@@ -1,0 +1,1 @@
+# Detecting-Stance-in-Media-on-Global-Warming-for-Indic-Languages
